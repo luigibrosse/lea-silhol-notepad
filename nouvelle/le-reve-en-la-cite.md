@@ -26,4 +26,4 @@ Sous l'emprise d'une drogue, il se verra offir un aperçu du futur, mais saura-t
 * Datura : plante utilisée pour représenter la nouvelle. Poison, drogue, devil's trumpet
 * Texte à la première personne
 * Potions, parfum
-* R'vayo'sh, autre monde, ouvre les portes, liquide gris, plombé, agité d'une vie propre
+* R'rayo'sh, vient d'autre monde, ouvre les portes, liquide gris, plombé, agité d'une vie propre
